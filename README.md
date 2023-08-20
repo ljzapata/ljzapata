@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with my professional development
 - 💬 Ask me about whatever you want
 - 📫 How to reach me: @chapazeta
-- ⚡ Fun fact: oxygen kills us slowly
--->
+- ⚡ Fun fact: oxygen kills us slowly 😱
+- 😍 Hobbies: Fútbol (It does not translate😁) - Chess
